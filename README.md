@@ -1,0 +1,1 @@
+https://urldefense.com/v3/__https://go.slack.com/get-started/enQtODc1NzY4MzM3ODM1NC02OWQ3YjBhNjYwNmJiMjI4NTUxYjA3N2ViNjY3OGQ4YmNhMDFkODYyZDQxNzhjOGE0NTM1NzIwZTNiZDE5ZmIz?e=amlud2VpLmppYW5nQGludGVsbGlsaW5rLmNvLmpw&i=default&m=slack&x=x-a8751063775973__;!!GCTRfqYYOYGmgK_z!7xed_zNIaDHtef0OXn6-ysQwKl0AFOAw7zum1RCbmiStUEVzXHB5KIBD4hDKQpGmjp3fHolyggkPYIXdW7vwPXG7z9AyQ1bciFUIDg$
